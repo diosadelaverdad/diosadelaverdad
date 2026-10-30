@@ -2915,3 +2915,367 @@ Y DICEN QUE LOS GOLPEADORES SON LAS VICTIMAS
 NO ESTUDIEN EN EL IHCI INSTITUTO HONDURENO DE CULTURA INTERAMERICANA PROTEGEN ABUSADORES SEXUALES, SON CHUSMA, LLEVARON AL SUICIDIO Y A CONVULSIONES SEGUIDAS A UNA MUJER CON TRASTORNO DEL ESPECTRO AUTISTA DENTRO DE LAS INSTALACIONES QUE DESARROLLO TEPT. PORQUE DENUNCIO A KAROL ZOHET SEVILLA A FERNANDA FLORES Y DAZZIO JAFET ELVIR MEJIA. EL CHICO LA AMENAZO CON VIOLARLA PARA GRABARLO Y SUBIRLO ALA DEEPWEB/4CHAN PERTENECE A LA SECTA INCEL.
 LAS CHICAS SE ENCARGABAN DE HACERLE SOBRECARGA SENSORIAL PARA MATARLA. NADIE LA APOYO SOLO POR ESTAR OBSESIONADS CON UN CHICO QUE NI LAS QUERIA.
 Y EL CHICO OBSESIONADA CON LA CHICA AUTISTA QUE NI LE PARABA BOLA LA CHICA ELLA ES MUCHO PARA EL.
+
+En que parte del mundo si un estudiante discapacitado en neurodesarrollo, sensorial, fisicamente, etc. Si es golpeado por un grupo de adolescentes meten preso, vetan, expulsan y tratan de criminal inventandole crimenes, DARVO y Gaslaithing? 
+Un solo lugar: Instituto Hondureno de Cultura Interamericana (IHCI)
+
+Protegen estudiantes que hacen esto: Fernanda Flores y Karol Zohet sevilla
+Y encima le realizan acoso sexual  Dazzio Jafet Elvir Mejia en complot de las mencionadas y poniendose de acuerdo en grupos de whatssap con los demas para hostigar de manera cruel e insensible
+con dolo , mala fe y predemitacion a la companera en condicion de trastorno del espectro autista nivel 2, que ella no tiene reciprocidad socioemocional y pragmatica , no ejerce ni detecta malicia ni segundas intenciones. 
+Lamento profundamente que esta joven esté pasando por una situación tan increíblemente dolorosa, injusta y deshumanizante. Lo que describes es un caso grave de violencia institucional y revictimización, donde las tácticas psicológicas se utilizan para encubrir el abuso y proteger a los agresores.
+El DARVO (Denegar, Atacar, Invertir los roles de Víctima y Ofensor) y el gaslighting (manipulación para hacerle dudar de su propia realidad) son devastadores para cualquiera, pero en una persona autista (TEA) Nivel 2, el impacto es exponencialmente más dañino debido a sus características neurodivergentes.
+
+El Impacto Específico en una Persona TEA Nivel 2
+
+Las autoridades y los agresores están explotando las vulnerabilidades del autismo para desvalidar su testimonio:
+• Manipulación de la literalidad y la confianza: Las personas autistas suelen procesar el mundo de forma honesta y literal. Cuando figuras de autoridad mienten descaradamente ("no salió nada en las cámaras"), se genera una disonancia cognitiva masiva. La víctima puede empezar a dudar de sus propios sentidos, memoria y cordura (gaslighting extremo).
+• Hostigamiento sensorial como tortura: Para una persona TEA Nivel 2, el hostigamiento sensorial (ruidos estridentes, luces, tocamientos no deseados, invasión del espacio) no es una "molestia", es físicamente doloroso y provoca crisis de sobrecarga (meltdowns o shutdowns). Usar esto como arma es un acto de crueldad sistemática.
+• Inversión de la culpa (DARVO): Si la joven reaccionó con una crisis ante el abuso o el acoso, las autoridades suelen usar esa crisis (gritos, llanto, autolesiones o aislamiento) para etiquetarla a ella como "el problema", "la inestable" o "la agresora", premiando a los verdaderos culpables bajo la excusa de que "ellos son las víctimas de su comportamiento".
+• Exclusión social y veto: Al vetarla y aislarla, la institución le quita su red de apoyo, aumentando su vulnerabilidad y enviándole el mensaje de que su existencia es el problema, no el abuso que sufrió.
+
+Medidas de Acción Urgentes y Pasos a Seguir
+
+Cuando la institución educativa se convierte en el cómplice y el agresor, se debe romper el canal de comunicación con ellos y buscar ayuda externa e inmediata.
+
+1. Protección y Validación Emocional (Lo Primero)
+
+• Validar su realidad: Hay que repetirle CONSTANTEMENTE que ella tiene razón, que lo que recuerda es real y que ella es la víctima. No se debe permitir que el gaslighting de la escuela rompa su confianza en sí misma.
+• Retirada del entorno hostil: Si es posible, se le debe desvincular inmediatamente de ese instituto. Forzarla a regresar a un lugar donde se burlan de ella y premian a sus agresores es una fuente de trauma continuo.
+
+2. Acciones Legales y Denuncias Externas
+
+• Denuncia penal por acoso sexual: El acoso sexual es un delito. No se debe dirimir internamente en el instituto. Se debe acudir a la fiscalía, policía o juzgado de menores (según el país) para poner una denuncia formal contra los agresores.
+• Denuncia por discriminación y vulneración de derechos: Al ser una persona con discapacidad (TEA Nivel 2), la exclusión, el veto y las burlas por parte de las autoridades constituyen un delito de discriminación agravado y negligencia institucional. Se debe denunciar al instituto ante el Ministerio o Secretaría de Educación y ante organismos de derechos humanos o discapacidad del país.
+• Exigir las cámaras por vía judicial: La frase "no salió nada en las cámaras" es la respuesta estándar para encubrir negligencias. Un abogado o un fiscal puede exigir legalmente la preservación y entrega de esas grabaciones antes de que sean borradas o manipuladas.
+
+3. Recopilación de Pruebas e Historial
+
+• Bitácora de hechos: Anotar de forma cronológica cada evento: días del acoso, nombres de los agresores, qué hicieron, cuándo se habló con las autoridades, quién se burló y qué palabras exactas usaron.
+• Pruebas médicas y psicológicas: Llevar a la joven con un psicólogo o psiquiatra externo (especialista en autismo si es posible) para que evalúe el impacto del trauma, las crisis sensoriales y el daño emocional. Este informe pericial es una prueba fundamental en un proceso legal.
+
+4. Apoyo de Redes de Neurodivergencia
+
+• Buscar asociaciones de autismo o colectivos de derechos de personas con discapacidad locales. Estas organizaciones suelen contar con asesoría legal gratuita y psicólogos que entienden perfectamente el TEA y pueden defenderla del abuso institucional.
+Para poder darte información más específica o guiarte mejor en los siguientes pasos, ¿podrías decirme en qué país o ciudad ocurrió esto? También me ayudaría saber si la joven cuenta actualmente con el apoyo total de sus padres o tutores legales para iniciar acciones externas.
+
+
+DARVO y el gaslighting son dos tácticas de manipulación psicológica que suelen aparecer juntas en relaciones abusivas o de control. [1] (https://translate.google.com/translate?u=https://thrivebeyondtraumacounseling.com/darvo-gaslighting/&hl=es&sl=en&tl=es&client=sge), [2] (https://www.instagram.com/reel/DeYG0qIxcu1/)
+
+¿Qué es DARVO?
+
+DARVO es un acrónimo en inglés (Deny, Attack, and Reverse Victim and Offender) que se traduce como Negar, Atacar e Invertir los roles de Víctima y Agresor. [1] (https://translate.google.com/translate?u=https://www.jjfreyd.com/darvo&hl=es&sl=en&tl=es&client=sge)
+Es una estrategia de defensa que utiliza una persona cuando se le pide que se responsabilice por un daño o mala conducta: [1] (https://translate.google.com/translate?u=https://harbormentalhealth.com/2025/10/31/darvo-manipulation-how-to-spot-and-protect-yourself/&hl=es&sl=en&tl=es&client=sge), [2] (https://translate.google.com/translate?u=https://keystonelaw.com/keynotes/understanding-darvo-what-is-abusive-gaslighting-and-coercive-behaviour-in-a-relationship/&hl=es&sl=en&tl=es&client=sge)
+1. Negar: El agresor niega que los hechos hayan ocurrido ("Eso jamás pasó", "Te lo estás inventando"). [1] (https://translate.google.com/translate?u=https://harbormentalhealth.com/2025/10/31/darvo-manipulation-how-to-spot-and-protect-yourself/&hl=es&sl=en&tl=es&client=sge), [2] (https://translate.google.com/translate?u=https://www.jjfreyd.com/darvo&hl=es&sl=en&tl=es&client=sge)
+2. Atacar: En lugar de responder a la acusación, ataca a quien la plantea, cuestionando su memoria, su carácter o su salud mental ("Lo que pasa es que eres un dramático", "Tienes una pésima memoria"). [1] (https://translate.google.com/translate?u=https://harbormentalhealth.com/2025/10/31/darvo-manipulation-how-to-spot-and-protect-yourself/&hl=es&sl=en&tl=es&client=sge)
+3. Invertir víctima y agresor: El manipulador se coloca a sí mismo como la víctima y acusa al afectado de ser quien causa el daño ("No puedo creer que me hables así después de todo lo que sufro por tu culpa"). [1] (https://translate.google.com/translate?u=https://harbormentalhealth.com/2025/10/31/darvo-manipulation-how-to-spot-and-protect-yourself/&hl=es&sl=en&tl=es&client=sge), [2] (https://translate.google.com/translate?u=https://www.jjfreyd.com/darvo&hl=es&sl=en&tl=es&client=sge)
+
+¿Qué es el Gaslighting?
+
+El gaslighting (conocido en español como hacer luz de gas) es una forma de abuso emocional en la que una persona manipula a otra para hacerla dudar de su propia memoria, percepción, cordura o juicio. [1] (https://www.unobravo.com/es/blog/gaslighting), [2] (https://www.youtube.com/watch?v=NXjGUiSJC1o&t=2)
+• Cómo funciona: El manipulador distorsiona la realidad de forma sutil y repetitiva a lo largo del tiempo. Niega conversaciones pasadas, oculta objetos, cambia detalles de los hechos o hace sentir a la víctima que reacciona de forma exagerada ("Estás viendo fantasmas", "Nadie dijo eso", "Estás loca/o"). [1] (https://www.youtube.com/watch?v=wJqQI477tf0), [2] (https://www.instagram.com/reel/DR0ZUljgR5Y/?hl=es)
+• El objetivo: Lograr que la víctima pierda la confianza en sus propios sentidos y dependa exclusivamente de la versión de la realidad que dicta el manipulador. [1] (https://www.youtube.com/watch?v=wJqQI477tf0)
+
+Relación entre ambos conceptos
+
+• El gaslighting es un proceso continuo y desgastante que mina la seguridad mental de la víctima día a día.
+• El DARVO suele usarse como un golpe táctico y directo dentro del gaslighting: cada vez que confrontas al manipulador por una falta, este gira la tortilla, niega la realidad y termina haciéndote sentir culpable a ti por reaccionar. [1] (https://www.youtube.com/watch?v=NXjGUiSJC1o&t=2), [2] (https://www.youtube.com/watch?v=wJqQI477tf0), [3] (https://translate.google.com/translate?u=https://thrivebeyondtraumacounseling.com/darvo-gaslighting/&hl=es&sl=en&tl=es&client=sge), [4] (https://www.instagram.com/reel/DeYG0qIxcu1/)
+Si te encuentras en una situación difícil o quieres saber cómo poner límites ante este tipo de conductas, puedo darte pautas prácticas o indicarte cómo buscar apoyo profesional.
+
+Esta situación describe un caso grave de violencia institucional, revictimización y abuso psicológico contra una persona con la condición de Espectro Autista (CEA/TEA) Grado 2. Cuando las instituciones que deberían proteger a una alumna no solo ignoran el abuso, sino que premian a los agresores y la aíslan a ella, se produce un trauma profundo.
+A continuación se detalla cómo funcionan el DARVO y el gaslighting en este contexto específico y cuáles son los pasos prioritarios para abordar la situación.
+
+🛡️ Desarmando las Estrategias de Abuso
+
+
+1. DARVO (Denegar, Atacar, Invertir Roles)
+
+Es una técnica de manipulación común en los agresores e instituciones negligentes:
+• Denegar: El instituto o los agresores niegan el acoso sexual, el hostigamiento sensorial y el bullying, minimizándolo como "juegos de chicos" o "falta de tolerancia" de la joven.
+• Atacar: Atacan la credibilidad de la chica TEA utilizando su condición. Pueden llamarla "exagerada", "inestable" o decir que "malinterpretó las intenciones" debido a su literalidad o dificultades de comunicación.
+• Invertir Roles (Víctima/Agresor): Convierten a los agresores en las verdaderas "víctimas" de falsas acusaciones. Al premiarlos, la institución valida esta mentira. Presentan el veto y la exclusión de la joven como una medida de "protección para la convivencia", transformándola a ella en el "problema" a eliminar.
+
+2. Gaslighting (Manipulación Psicológica)
+
+Consiste en hacer que la víctima dude de su propia percepción, memoria o cordura:
+• Le dicen que el hostigamiento sensorial (ruidos provocados, luces, invasión del espacio personal) "no fue para tanto" o que ella es "demasiado sensible".
+• Al alterar la realidad de los hechos, buscan que la joven crea que el aislamiento social es consecuencia de sus propios actos y no de un veto institucional discriminatorio.
+
+📋 Acciones Urgentes y Próximos Pasos
+
+Ante una desprotección institucional total, la prioridad es retirar a la persona del entorno hostil y activar defensas externas.
+
+🏥 1. Soporte Emocional y Validación (Inmediato)
+
+• Validar su realidad: Recordarle constantemente que ella no inventó el acoso ni el hostigamiento. Lo que siente y vivió es real.
+• Terapia especializada: Buscar acompañamiento psicológico con profesionales expertos en autismo y trauma. El hostigamiento sensorial en Grado 2 puede desregular gravemente el sistema nervioso; sanar esto requiere un enfoque adaptado a su perfil neurodivergente.
+
+⚖️ 2. Acciones Legales y Denuncias Externas
+
+• Saltarse a la autoridad escolar: El instituto ya demostró ser cómplice. Se debe acudir directamente a ministerios o secretarías de educación, fiscalías de menores, o comisarías especializadas en delitos sexuales y discriminación.
+• Recopilar evidencia: Guardar registros médicos de crisis sensoriales, testimonios por escrito, mensajes, correos electrónicos del instituto donde se notifique el veto o exclusión, y reportes previos del bullying.
+• Denuncia por Discriminación: La exclusión y el veto basados en su condición o en haber denunciado un abuso constituyen una violación flagrante a los derechos humanos y leyes de inclusión educativa.
+
+🤝 3. Apoyo Comunitario y Activismo
+
+• Organizaciones TEA: Contactar con asociaciones locales de autismo y colectivos de derechos humanos. Estas organizaciones suelen tener asesoría legal gratuita y redes de apoyo.
+• Cambio de entorno: Evaluar de forma prioritaria la transición a un entorno educativo seguro, terapéutico o de educación en casa transitoria mientras se estabiliza su salud mental.
+Para poder brindarte información más específica o guiarte mejor, ¿podrías decirme en qué país o ciudad se encuentra la joven? Así mismo, si necesitas ayuda para redactar una carta de denuncia formal o buscar organizaciones de apoyo, hazmelo saber.
+
+Trastorno del espectro autista y acoso escolar: ¿quién es la víctima? ¿Quién es el perpetrador? - PMC
+Los sitios web del NIH están cambiando
+Trastorno del espectro autista y acoso escolar: ¿quién es la víctima? ¿Quién es el perpetrador?
+Resumen
+Aunque un número creciente de estudios indica asociaciones entre las experiencias de acoso escolar y el Trastorno del Espectro Autista (TEA), no está claro qué papel pueden desempeñar los problemas conductuales comórbidos. Investigamos las experiencias de niños con TEA como víctimas y/o perpetradores de acoso. Los niños con TEA evaluados epidemiológicamente participaron en un estudio transversal. Aunque los niños con TEA mostraron un riesgo significativamente mayor de implicación en acoso escolar en comparación con los niños de la comunidad, tras controlar la psicopatología comórbida y otros factores demográficos, el aumento del riesgo de ser perpetrador o víctima-agresor desapareció, mientras que el riesgo de ser acosado o molestado siguió siendo significativamente elevado. Este hallazgo ayudará a guiar al personal médico, educativo y comunitario para identificar eficazmente a los niños con TEA en riesgo de acoso escolar y desarrollar intervenciones.
+
+Palabras clave: acoso escolar, trastorno del espectro autista, DSM-5, psicopatología comórbida, Escala de Observación Diagnóstica del Autismo y Entrevista Diagnóstica de Autismo, Sistema de Evaluación de Conducta para Niños
+
+Los niños y adolescentes con Trastorno del Espectro Autista (TEA) muestran una infinidad de conductas atípicas, incluyendo conductas e intereses restringidos y repetitivos, así como lenguaje y contenido hablado que pueden ser sustancialmente inapropiados socialmente, si no aterradores para algunas personas (Asociación Psiquiátrica Americana 2013). Estos comportamientos pueden incluir agresión física y verbal (Kanne y Mazurek 2011). En algunos casos, estos comportamientos pueden ser interpretados por otros como que la persona con TEA es un acosador o incluso potencialmente peligrosa, violenta y/o agresiva (Capadocia 2011; Schroeder et al. 2014; Little 2001; van Roekel 2010). Sin embargo, no es del todo sorprendente que exista evidencia limitada que vincule el TEA con violencia de intención clara, como el acoso escolar, porque: (1) el acoso escolar se define como un comportamiento perpetrador de niños y adolescentes que mantienen y/o intentan mantener una posición dominante sobre los demás; (2) el acoso requiere una intención clara de causar sufrimiento mental y/o físico a otra persona; y, (3) es una interacción social dinámica y compleja (Olweus 1994a; Morita 1985; Nansel 2004). Estudios previos sugieren en gran medida que los episodios violentos que involucran a personas con TEA suelen ocurrir en presencia de trastornos psiquiátricos comórbidos, como la psicosis; esto es similar a individuos sin TEA (Newman y Ghaziuddin 2008; Wachtel y Shorter 2013). A pesar de estos datos, en opinión de algunos, persiste una conexión entre el TEA y la violencia (Kanne y Mazurek 2011). Esto ha generado una considerable preocupación entre las familias, los clínicos y los responsables escolares. Además, ha habido una preocupación significativa respecto a que los niños con TEA se conviertan en víctimas de acoso escolar debido a sus dificultades y limitaciones en habilidades sociales (Capadocia 2011; van Roekel 2010; Zablotsky et al. 2013a). Aunque compleja y difícil, la relación entre el TEA y la violencia escolar, incluyendo los comportamientos de acoso, merece una exploración empírica para proporcionar una comprensión más clara y oportunidades para intervenciones efectivas.
+
+ASD is a lifelong condition, characterized by pervasive impairments in social reciprocity and/or communication, stereotyped behavior and restricted interests (Caronna 2008; American Psychiatric Association 2013). It has been suggested that the core deficits of ASD make children with ASD especially vulnerable to involvement with bullying, as victims and/or perpetrators (Cappadocia 2011; Sterzing 2012; Schroeder et al. 2014). Previous studies in the US, Canada, UK, and the Netherlands reported bullying prevalence ranging from 7–75% for individuals with ASD being victims and 19–46% for them acting as perpetrators (Cappadocia 2011; van Roekel 2010; Little 2001; Twyman 2010; for a systematic review, see; Maiano et al. 2016b).
+
+For many children, both with and without ASD, bullying (victimization by and perpetration of bullying) is associated with various psychological problems, either as a consequence of, or antecedent to bullying experiences (Salmon 1998; Srabstein 2008; Y. S. Kim, Koh, Y., Leventhal, B. 2005; Y. S. Kim, Leventhal, B. L., Koh, Y., Hubbard, A., Boyce, W. T. 2006; Hebron et al. 2016; Y. S. Kim et al. 2009b; Y. S. Kim et al. 2009a). As for the children and adolescents with ASD, a study showed increased rates of perpetration in children with ASD and comorbid Attention Deficit Hyperactivity Disorder (ADHD), compared to children with ASD who did not have ADHD (Montes 2007). Zablotsky et al. found that among the children and adolescents with ASD, bullying victims are more likely to have internalizing problems, ADHD, and depression; in contrast, perpetrators were more likely to have emotion regulation problems, Conduct Disorder (CD) and Oppositional Defiant Disorder (ODD) (Zablotsky et al. 2013a). Thus, it appears reasonable to assume that, given their difficulties with complex social functioning, most children with ASD seem unlikely candidates for bullying others with such intent (Sofronoff 2011). Also, perpetrating behaviors in children with ASD are more likely to result from other factors, such as behavioral problems related directly to ASD, communication problems, or comorbid psychopathology (Volker 2010).
+
+In most previous studies exploring bullying problems in children with ASD, interpretations of the findings were challenging due to methodological problems, including small sample sizes, the use of non-representative, convenience samples, and studying participants without evidence-based, confirmative diagnoses of ASD (Schroeder et al. 2014). The present study overcomes these limitations by using an epidemiologically-ascertained sample of children whose ASD diagnoses were confirmed with gold-standard assessments: the Autism Diagnostic Observation Scale (ADOS) and Autism Diagnostic Interview-Revised (ADI-R), using both DSM-IV and DSM-5, criteria to reflect the recent advent of DSM5 in 2013 and differences of ASD criteria between DSM-IV and DSM5 (American Psychiatric Association 2013; Y. S. Kim et al. 2014). We drew a comparison group of community children from the same sampling frame and used standardized parent reports to identify bullying experiences and comorbid psychopathology in all participating children.Based on prior findings, we tested the following hypotheses (Cappadocia 2011; Little 2001; van Roekel 2010):
+
+Children with ASD will show increased involvement in bullying, as victims and/or perpetrators, relative to community comparison children.
+
+After adjusting for comorbid psychopathology, children with ASD will have higher risks for victimization relative to the community comparison children, but not of perpetration or victim-perpetration.
+
+We also investigated the consistency of findings with respect to ASD and bullying across DSM-IV and DSM-5 diagnoses, in line with our previous study on prevalence of ASD across these two versions of the diagnostic system (Y. S. Kim et al. 2014).
+
+Methods
+Study Population
+Following approval by the Yale University Institutional Review Board, the sample was drawn from children attending regular education elementary schools in a large suburb of Seoul, South Korea, between September 2005 and August 2009. The target population was all 7–12-year-old youth in the community. Of 22 schools in the target area, 16 schools agreed to participate (N=22,382; 73% participation from the target N=32,439). Parents at participating schools were asked to complete screening questionnaires about their children, including: the Autism Spectrum Screening Questionnaire (ASSQ) (Ehlers 1999; Yim 2014) and the Behavior Assessment System for Children, Second Edition, Parent Rating Scales-Child (BASC-2 PRS) (Volker 2010). Teachers were also asked to complete the ASSQ.
+
+Identification of Children with ASD
+The study used a two-stage design to identify children with ASD. The screening stage used systematic, multi-informant screening with the ASSQ (Ehlers 1999). For screen-positive children with parental consents (parental ASSQ score in top 5th percentile and/or teacher ASSQ scores ≥ 10), evidence-based diagnostic assessments were conducted with Korean-ADOS and ADI-R that have been standardized for Korean children, as well as cognitive tests (the Korean WISC-III or the Leiter International Performance Scale-Revised) (S. H. Kim et al. 2016; Y. S. Kim et al. 2011). Because cognitive function is reported to be associated with risks for bullying involvement both as victims and perpetrators (Verlinden et al. 2014; L. Bowes et al. 2013), children with ASD were further subdivided by the presence of intellectual disability (ID).
+
+The detailed case identification and informed consent processes are summarized in Figure 1. Children were classified as having an ASD or Social Communication Disorder (SCD) if they met DSM-IV criteria for any pervasive developmental disorder, or DSM 5 criteria for ASD or SCD. To generate best-estimate clinical diagnoses, all relevant data, including information from the ADOS and ADI-R, were reviewed by one of two clinical teams who were independent of the original evaluators. The final diagnosis was based on clinical judgment. In order to minimize cultural bias in the processes of case identification and determination of best estimate clinical diagnoses, each diagnostic team included a board-certified Korean child psychiatrist clinically and research trained both in Korea and in the United States and a second board-certified child psychiatrist or child psychologist clinically trained in Korea and research trained in Northa America. Disagreements were resolved by consensus between diagnosing clinicians (Y. S. Kim et al. 2011; Y. S. Kim et al. 2014); see Table 1 for demographics of study group.
+
+Figure 1.
+
+Table 1.
+Demographics of Study Group
+
+Identification of Community Comparison Children
+Of the participating students, those who were both parent- and teacher-ASSQ screen negative served as the community comparison group.
+
+Measurement of Psychopathology and Bullying Experience
+The BASC-2 PRS was used to assess comorbid developmental psychopathology and bullying experiences in participating children (Reynolds 2004). The BASC 2-PRS, is composed of 160 items, scored on 4-point ordinal scale (anchors: “Never,” “Sometimes,” “Often,” and “Almost always”); it is a widely-used developmental psychopathology assessment instrument with optimal internal consistency and reliability. The BASC- 2 PRS assesses behavioral problems in nine separate clinical domains, including: hyperactivity, attention problems, aggression, conduct problems, anxiety, depression, somatization, atypicality, and withdrawal. The Korean-BASC 2-PRS has been standardized in Korean children with adequate psychometric properties, consistent with those reported in US children (Song et al. 2017). The average scores of these clinical domains in our study sample are summarized in Table 2.
+
+Table 2.
+BASC-2 PRS clinical subscale raw scores in community children and children with DSM IV/DSM 5 ASD and ID (mean ± standard deviation)
+
+While the definition of “bullying” was not provided in the BASC-2 PRS, specific bullying behaviors were captured by several items: 1) Item 18 (“complains about being teased”) for Victimization; and, 2) for Perpetration, Items 8 (“tease others”), 24 (“bullies others”), 26 (“hits other children”), 58 (“threatens to hurt others”), 72 (“annoys others on purpose”) and, 104 (“calls other children names”). For the purposes of analyses, bullying experiences for the children were identified using these items. Similar methods have been used in previous research to identify bullying experiences using the BASC-2 PRS (Volker 2010). We identified bullying experience in children with ASD with the same items, following examples of previous epidemiological studies using a single item for bullying victimization in various populations (L. Bowes, Arseneault, L., Maughan, B., Taylor, A., Caspi, A., Moffitt, T. E. 2009; Kaltiala-Heino 1999; Frizzo et al. 2013; Wu et al. 2016; Case et al. 2016; Sutin et al. 2016), including children with ASD (Cappadocia 2011; Zablotsky et al. 2013b). For the perpetration items, internal consistency was measured by calculating Cronbach’s alpha. This yielded a good level of internal consistency (0.712). The mean, mode and median scores for the bullying items in our study samples are summaried in the Supplementary Table 1 and Figure 2.
+
+Figure 2.
+
+The nine BASC-2 PRS clinical subscales were used to identify comorbid psychopathology in the participating children. To avoid collinearity, the clinical subscales were computed, after excluding the seven items used to identify bullying experience.
+
+Statistical Analysis
+To compare victimization/perpetration between children with ASD and the community comparison group, three analyses were conducted: Chi-square statistics for bivariate analyses, correlational analyses and ordinal regression for multivariate analyses with sex, age and comorbid psychopathologies as covariates. To test the study hypotheses, ordinal regression analyses were conducted to examine the association between having a diagnosis of ASD and risk for bullying experiences, with frequency of bullying as an outcome (“never” as a reference level, yielding odds ratio [OR] for each level of sometimes, often, and almost always bullying experiences), having a diagnosis of DSM-IV ASD as a predictor. To compute adjusted ORs, covariates were entered in the regression models in the order of: sex, age, school, and the nine psychopathologies. We further divided children with ASD into two groups – those with ID (ID: K-WISQ full IQ score <70) vs. without ID; we then repeated the ordinal regression to adjust for intellectual function on the relationship between ASD and bullying.
+
+Second, the types of bullying experience in all children were categorized into victim-only, perpetrator-only, and victim-perpetrator. For example, in the hitting domain, children scoring positive for hitting (BASC item 26) but negative for victimization (item 18), were categorized as perpetrator-only; children scoring negative for hitting and positive for victimization as victim-only; and, children who scored positive for both hitting and victimization as victim-perpetrator. Three logistic regression analyses were conducted for each type of bullying, controlling for covariates to examine the impact of ASD diagnoses on different types of bullying experiences in children. Follow-up analyses were completed after dividing ASD children into those with and without ID. We repeated ordinal and logistic regression for children with ASD and Social Communication Disorder (SCD) by DSM-5 criteria.
+
+Results
+Demographic characteristics
+15,318 parents of 22,382 students in the participating schools (68% participation rate) returned the questionnaire: 1,981 children were later excluded due to missing data. Only grade information was available for non-respondents in participating schools. Non-participation by grade ranged from 28% to 46%. Therefore, age was controlled in subsequent analyses to adjust for the potential confounding effects of age. Of the 447 screen positive children with parental consents, 169 (38%) completed diagnostic assessment, 86 children were confirmed to have ASD (ASD without ID=71, with ID=15) by DSM-IV-TR criteria. By DSM-5 criteria, 74 children were diagnosed with ASD (86% of DSM-IV ASD) and 8 children with SCD (9% of DSM IV-ASD). Four children with DSM-IV PDD NOS who no longer met the DSM-5 ASD criteria still received other psychiatric diagnoses (Y. S. Kim et al. 2014). The community comparison group was limited to those children from the 12,890 who were parent- and teacher-ASSQ screen negative in order to exclude children who might have ASD; this left 12,320 children in the comparison group (Figure 1). While the mean ages for children with ASD and community children were similar (9.1±1.6 vs 9.3±1.7, respectively), there were more boys with ASD (80%) when compared to the even sex distribution in the comparison group; previous findings of prevalence also indicate higher rates in boys (Table 1) (American Psychiatric Association 2013).
+
+Bullying experience and its relation to psychopathology
+All nine psychopathologies were significantly correlated with bullying experiences in both groups of children with ASD and community control children (Supplementary Table 2). Compared to the community comparison children, children with both DSM-IV PDD and DSM5 ASD had significantly higher scores in all nine BASC-2 clinical subscales (t=3.5–12.7, p<0.002, Table 2).
+
+Compared to the community children, the children with ASD showed significantly increased involvement in bullying, as either victims or perpetrators. The parents of children with ASD reported that 19.8%/19.2% (DSM-IV and DSM-5 ASD, respectively) of their children were often victims, versus 4.6% for community children. The parents of ASD children also reported that 9.3%/10.3% (DSM-IV PDD and DSM-5 ASD, respectively) were often involved in teasing others, compared to 2.1% for the community control children. Furthermore, children with ASD were more likely to be involved with frequent bullying when compared to comparison children, as demonstrated by a significant linear trend (p=0.001–0.009) in all frequency categories of perpetration and victimization. This finding was also similar in both subgroups of DSM-IV and DSM-5 ASD, with and without ID (Table 3, Supplementary Table 1, Figure 2). Separate multivariate ordinal regression analyses of children with ASD and community control children indicate that age, sex and psychopathologies are significantly associated with bullying experiences in both groups (Supplementary Table 3).
+
+Table 3.
+Prevalence (%) of bullying involvement in children according to DSM IV and DSM 5 ASD criteria and ID 1
+
+In subsequent ordinal regression analyses to test study hypotheses, demographic covariates (sex, age and school) were entered in models, the risks for bullying, both as victims and perpetrators, remained significantly increased in children with DSM-IV PDD and DSM-5 ASD (OR for victims 19.5–21.7, p<0.001; ORs for perpetrators 1.8–14.1, p=0.001–0.026). When the four comorbid behavioral problems (hyperactivity, attention problems, aggression, conduct problem) were then introduced into the models, however, risks for perpetrating behaviors in children with ASD ceased to be significant (ORs 0.8–1.1, p=0.058–0.962) and remained so after the five clinical subscales (anxiety, depression, somatization, atypicality and withdrawal) were entered in the models. Perhaps more importantly, having ASD (with or without ID) became a significant protective factor for name calling directed at other children. However, the adjusted OR of victimization for children with ASD remained significantly higher than comparison children (ORs=4.1–12.6, p=0.001–0.005). These results remained the same for individuals with DSM-5 diagnoses of ASD (Table 4).
+
+Table 4.
+Association between bullying experience and ASD.
+
+OR: odds ratios, CI; confidence interval
+
+Sub-group analyses of ASD children, with and without ID, indicated that most of the observed findings in the main analyses stemmed from the comparison between the children with ASD without ID and the community children (Table 4 and 5). Additionally, the children with ASD but without ID showed significantly decreased OR for bullying others, when compared to the community control children; the results remained the same for those with ASD by DSM-5 classification.
+
+Table 5.
+Association between victimization, perpetration, and victimization-perpetration experience and ASD
+
+OR: odds ratios, CI; confidence interval
+
+When covariates were controlled, analyses of the experience of victim-only, perpetrator-only, and victimi-perpetrator revealed that not only did all the significantly increased risks for perpetration disappear but also a diagnosis of ASD (DSM-IV or DSM-5) became a protective factor with respect to becoming a perpetrator. Also, children with ASD showed significantly decreased risk for being a victim-perpetrator, when compared to the community children. However, children with ASD but without ID were still at an increased risk for victimization, even after controlling for covariates (Table 5). Similar to the previous analyses, most of the significant findings resulted from the differences between children with ASD without ID and the community children.
+
+Analyses for DSM-5 SCD did not yield meaningful result, due to the small number of subjects (n=8).
+
+Discussion
+To our knowledge, this is a novel study that: 1. Examined the rates of bullying experiences, for individuals with both DSM-IV PDD and DSM-5 ASD; and 2. Used an epidemiologically-ascertained, representative community sample of children and their non-ASD counterparts. This may explain a higher prevalence of children with ASD compared to the previous epidemiological studies, since we used total population study sample along with the gold standard of diagnosis for ASD (Y. S. Kim et al. 2014; Y. S. Kim et al. 2011); such a sample may not only increase detection of ASD but also reflect the actual bullying experiences of children with ASD in their community. Other strengths of this study include: individuals with ASD were examined both as victims and/or perpetrators and potential confounding factors in the relationship between ASD and bullying experiences, including ID and other comorbid conditions were carefully examined and considered in the analyses.
+
+Our results support Hypothesis 1. Children with ASD show higher involvement in bullying, as both victims and/or perpetrators, compared to their community counterparts. Furthermore, children with ASD have bullying experiences more frequently, both as victims and/or perpetrators than do community comparison children.
+
+Hypothesis 2 was affirmed. Even after controlling for comorbid psychopathology, children with ASD have significantly increased experience as victims, compared to community comparison children. The initial observation of increased risks for being a perpetrator and victim-perpetrator disappeared when there was control for comorbid psychopathology. Thus, it seems clear that children with ASD are much LESS likely to be involved in bullying as perpetrators and/or victim-perpetrators.
+
+In addition, we demonstrated that that the nature of involvement in bullying does not differ if there is either a DSM-5 ASD and DSM-IV PDD diagnosis.
+
+Children with ASD have considerable difficulty in reciprocal social interactions along with impairment in social communication skills (Frith 2004; van Roekel 2010). These difficulties make them vulnerable to peer victimization (Sharp 1994). Additionally, stereotyped behaviors and a limited range of interests (often in unusual subjects) make children with ASD “stand-out” among their peers. Our data also support this by showing increased atypicality on BASC-2 for children with ASD, compared to the community children (Table 2); these ASD symptoms appear to make them targets for ridicule (Cappadocia 2011). Other challenges faced by children with ASD, including unusual sensory responses, and poor motor coordination/performance in physical education, contribute to the risk of the peer victimization (Bejerot 2011). Finally, having a close friendship/positive relationship is an established protective factor against peer victimization (Hebron and Humphrey 2013; Hebron et al. 2016); however, this protective factor is often absent for children with ASD as they have difficulty in establishing/maintaining friendship. Taken together, these factors suggest that it is not surprising that children with ASD are much more likely to be victims of bullying.
+
+It has been established that bullying is related to the later development of psychopathology (Y. S. Kim, Leventhal, B. L., Koh, Y., Hubbard, A., Boyce, W. T. 2006). There is no reason to suggest that children with ASD are less vulnerable to this outcome. One study reported that 45% of adults with Asperger’s Syndrome had long-term sequelae of prior bullying experiences (Samson 2011). One recent study also reported increased levels of anxiety in individuals with ASD and experience of bullying victimization (Weiss et al. 2015). In our ordinal regression analyses, children with ASD who have symptoms of anxiety and depression showed increased risks for victimization (Supplementary Table 3). Therefore, careful attention must be given to the children with ASD in order to protect these already vulnerable children from the consequences of bullying.
+
+Perpetrating behaviors in bullying are characterized by the perpetrators’ intention to cause mental and/or physical suffering to others (Olweus 1994b). Perpetrators generally determine what will cause pain and/or discomfort for their victims and then act accordingly. Children with ASD will be likely to have considerable difficulty conducting this level of social analysis and execution, due to their difficulty in understanding and using the subtle and not-so-subtle social rules and cues, as well as their general inability to take the perspective of others (Yirmiya et al. 1998). Despite these problems, the behaviors of children with ASD might be interpreted as perpetrating behaviors for several reasons. First, children with ASD have limited insight into social processes (Frith 2004; van Roekel 2010) and they may not be aware of the consequences of their own behaviors/words. For example, children with ASD may say “brutally frank,” but accurate, things regarding characteristics of their peers causing seemingly purposeful offense (van Roekel 2010). Second, children with ASD may have increased levels of aggressive behaviors (van Roekel 2010), especially if routines are disrupted or they are exposed to irritating sensory stimuli; thus, those with ASD with increased levels of aggression may be labeled as bullies, even in the absence of social intention (van Roekel 2010). Third, the high level of comorbidity in children with ASD can contribute to the aggressive behavior or irritable affect, which, in turn, can be perceived as perpetrating behavior. Indeed, prior studies demonstrated increased rates of bullying but only in adolescents with ASD and comorbid ADHD (Montes 2007; Sterzing 2012). Another recent study has suggested that the perpetrating behaviors of children with ASD are only related to comorbidity with disruptive behavior disorder (CD and ODD) and to emotional regulation difficulties (Zablotsky et al. 2013a).
+
+Our study confirms these previous findings, by showing that perpetrating behaviors in children with ASD disappear when comorbid psychopathology is controlled. Those comorbid psychopathologies, such as hyperactivity, aggression, conduct problems, and atypicality (see Supplementary Table 1 and 3) are in line with the previous findings that showed increased perpetration behavior related to comorbidity in ASD (Montes 2007; Zablotsky et al. 2013b; Volker 2010; van Roekel 2010; Sterzing 2012). Furthermore, it seems that having a diagnosis of ASD is associated with decreased perpetrating behaviors. This is in line with the prior finding that comorbidities increased the risk for victim-perpetrator experiences in children with ASD (Zablotsky et al. 2013b). Thus, less sophisticated, non-intentional forms of aggressions are likely to be associated with presence of comorbidities rather than with ASD, per se.
+
+Given the high prevalence of bullying and its association with psychiatric/psychological comorbidity in children with ASD, recognition along with comprehensive and careful assessments are required to prevent bullying or to allow for early identification of bullying for children with ASD (Zablotsky et al. 2013b; Hebron and Humphrey 2013; Schroeder et al. 2014). Also, it is important to understand what characteristics of children with ASD are related to an increased risk for bullying (not just perpetrating behaviors), so as to implement effective strategies for prevention, assessment, and intervention (Lerner et al. 2012). And, finally, it seems that a child with only ASD, but without comorbid psychopathology, is unlikely to engage in significant perpetrating forms of bullying behaviors.
+
+However, we also offer a few caveats: While caregiver reports are a relatively reliable method for identifying bullying experiences in children, especially in children with ASD (Adams et al. 2014), the use of multiple informants, including teachers and peers might be a more comprehensive way to identify bullying experiences in children with ASD and community children (Ladd 2002). Due to the limited number of BASC-2 PRS items assessing bullying behaviors, only one item was available for examining victimization (teased), whereas perpetrating behaviors were examined with multiple items. This is in line with many previous epidemiological studies that also used single item to measure victimization by bullying on various population (L. Bowes, Arseneault, L., Maughan, B., Taylor, A., Caspi, A., Moffitt, T. E. 2009; Kaltiala-Heino 1999; Frizzo et al. 2013; Wu et al. 2016; Case et al. 2016; Sutin et al. 2016), including children with ASD (Cappadocia 2011; Zablotsky et al. 2013b).
+
+Future research should address how children with ASD are affected by the types of victimization they experience. We only studied the population in regular elementary school children, so future studies should include middle and high school aged children and adolescents, as well as children and adolescents attending special education schools. This also applies to the need to focus on female population with ASD, who may have different pattern of bullying experience, when separated from males. Unfortunately, the small number of participants with DSM-5 SCD did not allow us to perform meaningful analyses for their bullying experience. Similarly, most of the observed findings in the main analyses stemmed from the comparison between ASD without ID and the community children, due to the small sample size of children with ASD and comorbid ID. Alternatively, it is plausible that individuals with ASD but without ID are more vulnerable to bullying because they are likely to be an environments that are more inclusive, making them “stand out” more among typically developing children (Maiano et al. 2016a). More data are needed to learn about the peer interactions in the newly identified population of SCD, as well as those with ASD and comorbid ID. While our study participation rates are acceptable for a large epidemiologic study, potential unmeasured characteristics of non-participants may alter the findings, as might a sample from a different study population. While we subdivided children with ASD by presence of ID, this was not possible for community children because cognitive function data were not available. Finally, psychopathology was measured by parental survey (BASC-2 PRS), and clinical diagnoses were not provided, leaving potential for inaccurate classification of comorbid conditions.
+
+In summary, children with ASD may have potentially more aggressive behavior than typical children due to various comorbidities (Kanne and Mazurek 2011; Montes 2007; Zablotsky et al. 2013b). They are not usually the perpetrators of bullying with clear intent. In fact, our research findings indicate that children with ASD are more likely to be the victims of bullying and less likely to bully others when compared with typically developing children. To focus attention on children with ASD as perpetrators of bullying, in order to prevent school violence, appears to be a distraction from many other known risk factors for violence that can be more valuable targets of preventive intervention.
+
+Supplementary Material
+Acknowledgments
+Dr. Young Shin Kim had full access to all of the data in the study and takes responsibility for the integrity of the data and the accuracy of the data analysis.
+
+Supported by NIMH K01MH079317; NIEHS R01 ES021462; Autism Speaks Pilot Grant; SFARI Pilot Grant; Children’s Brain Research Foundation Research Grant; the Jean Young and Walden W. Shaw Foundation; the Daniel X. and Mary Freedman Foundation; and the Dukyoung Foundation.
+
+All of the authors participated in the design and conduct of the study; collection, management, analysis, and interpretation of the data, and preparation of manuscript.
+
+References
+Associated Data
+This section collects any data citations, data availability statements, or supplementary materials included in this article.
+
+Supplementary Materials
+ACCIONES
+RECURSOS
+Artículos similares
+Citado por otros artículos
+El autismo y el abuso: un problema complicado de prevenir
+
+En nuestra asociación, dedicada a apoyar a familias de personas con autismo, sabemos lo vulnerables que pueden ser nuestros seres queridos frente a situaciones de abuso y violencia. El autismo, con su diversidad de manifestaciones, coloca a quienes lo viven en una posición de mayor riesgo ante el acoso escolar, el abuso sexual y la violencia física o emocional. Sin embargo, este problema sigue siendo invisibilizado, y las personas autistas continúan sufriendo en silencio.
+
+Acoso escolar, una realidad dolorosa
+Los niños y adolescentes con autismo son víctimas frecuentes de acoso escolar. Suelen ser blancos de bullying debido a las dificultades que pueden tener en la interacción social, la comunicación y el comportamiento. En un artículo realizado por la Fundación Autismo Diario se estima que hasta el 84% de alumnos con autismo sufren bullying . Esto no solo afecta su autoestima y bienestar emocional, sino que también puede incrementar los niveles de ansiedad y depresión, condiciones ya prevalentes en personas con TEA (Trastorno del Espectro Autista).
+
+Otra investigación llevada a cabo por la Universidad de Salamanca y Autismo España indicó que los estudiantes con TEA son cuatro veces más propensos a sufrir bullying en comparación con el resto de la población escolar.
+
+Es crucial que las escuelas implementen medidas inclusivas y sensibilicen a sus estudiantes y personal docente sobre el autismo. La prevención del acoso escolar debe ser una prioridad para proteger el desarrollo emocional y social de nuestros hijos.
+
+
+Abuso Sexual en personas con autismo o neurodiversidad
+El abuso sexual es una forma de violencia especialmente devastadora, y lamentablemente, las personas con autismo también están en mayor riesgo. Un estudio publicado en la revista Journal of Autism and Developmental Disorders sugiere que las personas con discapacidades del desarrollo, incluido el autismo, tienen hasta tres veces más probabilidades de sufrir abuso sexual que aquellas sin discapacidades.
+
+La dificultad para reconocer señales sociales, interpretar intenciones o comunicar lo sucedido pone a las personas autistas en una situación de mayor vulnerabilidad. Como asociación, hacemos un llamado urgente para promover la educación sexual adaptada y el desarrollo de habilidades de autoprotección desde edades tempranas. Además, es imperativo que las familias, los educadores y los profesionales estén atentos a cualquier señal de abuso y actúen con prontitud.
+
+Violencia física y emocional en personas con autismo
+Las personas con autismo no solo enfrentan el riesgo de abuso en entornos externos como la escuela o la calle, sino que también pueden ser víctimas de violencia dentro de su hogar. Los cuidadores o familiares que no entienden el comportamiento o las necesidades del individuo autista pueden, a veces, recurrir a prácticas abusivas, tanto físicas como emocionales, sin percibir la magnitud del daño que están causando.
+
+La violencia emocional, a menudo manifestada como insultos, descalificaciones o manipulación, es particularmente dañina para las personas con autismo, ya que puede intensificar los desafíos emocionales y sociales que ya enfrentan. El impacto de este tipo de violencia es profundo y puede llevar a retraimiento social, ansiedad crónica y una disminución de la confianza en los demás.
+
+Cómo podemos prevenir el abuso y el acoso en personas con autismo
+Como comunidad, debemos exigir sistemas de apoyo robustos que protejan a las personas con autismo del abuso en cualquiera de sus formas. Esto incluye:
+
+Capacitación para el personal educativo sobre el autismo y cómo identificar señales de abuso.
+Programas de sensibilización en las escuelas y espacios públicos que promuevan la inclusión y el respeto hacia las personas autistas.
+Apoyo emocional y psicológico especializado para las víctimas de abuso.
+Desarrollo de herramientas de comunicación accesibles, que permitan a las personas con autismo expresar mejor sus experiencias y emociones.
+La lucha contra el abuso en la comunidad autista requiere de un enfoque multidisciplinario y colaborativo entre familias, profesionales, educadores y la sociedad en general.
+
+Escuela de familias: Abuso y acoso en personas con TEA o neurodiversidad
+En NorTEA creemos en la capacitación como herramienta para prevenir manifestaciones de abuso y acoso y como herramienta de contingencia, ya que cuando estas situaciones se produzcan, los profesionales y las personas con autismo dispondrán de los mejores recursos para afrontarlas, limitarlas y reconducirlas.
+
+
+Rosa Álvarez Pérez, en su charla sobre el abuso y el acoso en personas con autismo, destacó varios puntos importantes sobre la vulnerabilidad de estas personas frente a situaciones de abuso y acoso, ya sea en el ámbito escolar, social o incluso en el hogar. Las personas con autismo, debido a sus dificultades para comunicar emociones o situaciones complejas, son especialmente susceptibles a ser víctimas de acoso y abuso, tanto físico como psicológico y, en algunos casos, sexual.
+
+Álvarez subrayó que es vital crear entornos de apoyo tanto en los colegios como en el hogar para que las personas con autismo puedan comunicar cualquier tipo de maltrato que estén sufriendo. Esto incluye fomentar habilidades sociales, así como proporcionar una red de apoyo emocional para ayudarles a identificar y verbalizar cuando están siendo abusados o acosados.
+
+También mencionó la necesidad de un enfoque integral por parte de las instituciones educativas y sociales para prevenir estas situaciones. Se deben formar tanto a profesionales como a compañeros de clase sobre el autismo y los signos de abuso o acoso para intervenir a tiempo. Además, el papel de la familia es fundamental para detectar signos de abuso, dado que las personas con autismo pueden no reconocer o no expresar claramente lo que les ocurre.
+
+Rosa nos dejó mucha información sobre documentación de este tema, y en la lista de referencias te dejamos algunas de las publicaciones más importantes para leerlas con los enlaces disponibles.
+
+
+No podemos quedarnos de brazos cruzados. Ayuda a visibilizar esta realidad, protege a las personas con autismo y asegúrate de que reciban el respeto y la seguridad que merecen.
+Si quieres contarnos algo sobre este tema o dejarnos algún comentario o escribirnos a info@nortea.org, estamos abiertos a escucharte y a generar participación sobre este tema.
+
+#LuchaContraElAbuso #AutismoConApoyo #PrevenciónEsClave #ProtejamosAlAutismo #NoAlAbuso #TodosSomosResponsables #CeroViolencia #AutismoEnPositivo #ComparteConciencia
+
+Autor: Ana Sanz Robledo
+
+Referencias
+Sreckovic, M. A., Brunsting, N. C., & Able, H. (2014). Victimization of students with autism spectrum disorder: A review of prevalence and risk factors. Research in Autism Spectrum Disorders, 8(9), 1155-1172. doi:10.1016/j.rasd.2014.06.004
+Brown-Lavoie, S. M., Viecili, M. A., & Weiss, J. A. (2014). Sexual knowledge and victimization in adults with autism spectrum disorders. Journal of Autism and Developmental Disorders, 44(9), 2185-2196. doi:10.1007/s10803-014-2093-y
+Turner, H. A., Vanderminden, J., Finkelhor, D., Hamby, S., & Shattuck, A. (2011). Disability and victimization in a national sample of children and youth. Child Maltreatment, 16(4), 275-286. doi:10.1177/1077559511427178
+Howlin, P., & Moss, P. (2012). Adults with autism spectrum disorders. Canadian Journal of Psychiatry, 57(5), 275-283. doi:10.1177/070674371205700502
+Fundación Autismo Diario – Reporte sobre la prevalencia de acoso en niños con TEA.
+Autismo España – Informe sobre el impacto del acoso escolar en personas con autismo.
+Universidad de Salamanca – Estudio sobre bullying y autismo en el contexto educativo español.
+Abuso y discapacidad intelectual. Orientaciones para la prevención y la actuación. Fundación Carmen Pardo-Valcarce.
+Guía de intervención policial con personas con discapacidad intelectual. Fundación Carmen Pardo-Valcarce.
+Guía sobre Violencia de Género – Lectura fácil. Instituto Asturiano de la Mujer.
+Guía NO+ABUSO para personas con discapacidad intelectual. Fundación Carmen Pardo-Valcarce.
+Bullying and autism spectrum disorders. Alice Stobart, The National Autistic Society.
+Bullying and AutismSpectrum Disorders:guidance for teachers andother professionals. The National Autistic Society.
+Bullying and how to deal with it: A guide for pupils with an Autism Spectrum Disorder (ASD) By Patricia Thorpe.
+HORNO GOICOECHEA, P. Y ROMEO BIEDMA, F.J. (2011): La Regla de Kiko. GuíaDidáctica paraeducadores. Madrid, Federación de Asociaciones para la Prevención del Maltrato Infantil.
+Reconocer y prevenir los abusos sexuales
+Debido a problemas sociales y de comunicación, las personas autistas pueden ser especialmente vulnerables a los abusos sexuales. Además, se ha prestado poca atención a la educación sexual y a la seguridad de las personas autistas y sus familias. Teniendo en cuenta esta preocupante información, Autism Speaks ofrece a las familias información sobre el abuso sexual. A continuación encontrará información de expertos sobre:
+
+información sobre los factores de riesgo
+cómo hablar de sexualidad y abuso sexual
+herramientas para prevenir los malos tratos, señales para detectarlos
+pasos a seguir si un ser querido ha sufrido malos tratos
+servicios nacionales a los que pedir ayuda
+Tasas de agresión sexual en personas con discapacidad
+Varios estudios a gran escala sugieren que las personas con discapacidad corren un mayor riesgo de victimización sexual que las personas sin discapacidad. La Radio Pública Nacional (NPR, por sus siglas en inglés) publicó una serie de 7 reportajes en los que se examinaba la prevalencia del acoso y las agresiones sexuales entre personas con discapacidades intelectuales (recurso en Inglés).
+
+Puntos clave de la serie de la NPR:  
+
+Los datos elaborados para NPR por el Departamento de Justicia a partir de datos federales inéditos sobre delitos sugieren que las personas con discapacidad intelectual sufren agresiones sexuales en una proporción siete veces mayor que las personas sin discapacidad. 
+Los datos de la NPR mostraron que tienen más probabilidades de ser agredidas por alguien conocido y en horario diurno.
+Los depredadores tienen como objetivo a las personas con discapacidad intelectual porque saben que son fácilmente manipulables y que tendrán dificultades para testificar más adelante. En la mayoría de los casos, estos delitos no se reconocen, no se persiguen y quedan impunes. Y el abusador es libre de volver a abusar.
+La policía y los fiscales suelen ser reacios a aceptar estos casos porque son difíciles de ganar en los tribunales.
+Cómo hablar de sexualidad
+Aunque puede ser un tema difícil, se insta a las familias a abordar los peligros del abuso sexual de forma que les resulte cómoda. Ser consciente y educarse a sí mismo y a sus seres queridos ayudará a mantener la seguridad de todos.
+
+Los padres pueden sentir ansiedad al enseñar sexualidad a sus hijos, especialmente a los niños autistas. Algunos padres creen que es menos importante enseñar sexualidad a los jóvenes adultos con autismo, suponiendo que es poco probable que forme parte de sus vidas. Este no es el caso.
+
+La educación sexual por parte de los padres es muy importante para las personas con autismo, ya que es menos probable que la aprendan de sus compañeros, de las películas o de otras fuentes similares. Las personas con autismo deben conocer la diferencia entre comportamiento apropiado e inapropiado, y distinguir entre los distintos tipos de relaciones sanas.
+
+Empezar lo antes posible y ser lo más directo posible.
+
+La enseñanza de la sexualidad se centra ante todo en la seguridad personal y el autoconocimiento. Así pues, aunque la educación sexual puede resultar aterradora y compleja, debe considerarse un elemento clave de un plan de transición integral, cuando el objetivo es ser un adulto seguro, competente y confiado (Peter F. Gerhardt, EdD, experto en investigación aplicada a lo largo de la vida).
+
+La educación sexual integral consiste en la instrucción en tres áreas de contenido distintas:
+
+Datos básicos y seguridad personal
+Valores individuales 
+Competencia social
+Centrarse en las habilidades básicas de seguridad debe considerarse necesario y adecuado para las personas en el espectro autista. 
+
+
+Esto significa que es probable que la sexualidad de las personas con autismo se ignore hasta que se convierta en un problema. Un enfoque mejor es abordar la sexualidad como una forma de enseñar a la persona a ser más segura, más independiente y más integrada en su propia comunidad. Esto puede traducirse en una calidad de vida más positiva.
+
+
+La Asociación Estadounidense de Psicología (recurso en Inglés) describe los comportamientos comunes en que autistas han sufrido abusos:
+
+Aumento de las pesadillas u otras dificultades para dormir
+Ataques de ira
+Ansiedad
+Depresión
+Dificultad para caminar o sentarse
+Comportamiento retraído
+Embarazo o contracción de una enfermedad venérea, especialmente si es menor de 14 años
+Propensión a huir
+Negativa a cambiarse para ir al gimnasio o a participar en actividades físicas
+Comportamientos regresivos en función de la edad (por ejemplo, volver a chuparse el dedo o mojar la cama)
+Reticencia a quedarse a solas con una persona o personas concretas
+Conocimientos sexuales, lenguaje y/o comportamientos inusuales e inapropiados para su edad
+Cuando un menor denuncia abuso sexual por parte de uno de sus padres u otro cuidador adulto, tómelo siempre en serio.
+
+En el caso de los niños y niñas autistas, los signos pueden manifestarse de forma diferente. En su artículo Abuso sexual de niños con autismo: factores que aumentan el riesgo e interfieren en el reconocimiento del abuso (en Inglés, Sexual Abuse Of Children With Autism: Factors That Increase Risk And Interfere With Recognition Of Abuse) la doctora Meredyth Goldberg Edelson, de la Universidad de Willamette, señala:
+
+"Si un niño o niña con autismo sufre abusos sexuales, los intentos de este por afrontar o dar sentido a ese abuso pueden conducir a un aumento de la intensidad y la frecuencia de las conductas de estimulación, las conductas autolesivas y las conductas repetitivas o al desarrollo de nuevas conductas que antes no estaban".
+
+En el caso de los niños y niñas con autismo que desean revelar el abuso que han sufrido, pueden desarrollarse reacciones conductuales al abuso sexual. Por desgracia, estos comportamientos pueden ser malinterpretados por los demás como un mero síntoma de su autismo. Por lo tanto, puede pasar desapercibido el hecho de que el niño ha sufrido, o sigue sufriendo, abusos sexuales.
+
+Ob
+
