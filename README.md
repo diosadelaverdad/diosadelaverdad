@@ -1,3 +1,4 @@
+En esta historia tuve el 90% shutdowns y 10% meltdowns autistas...
 Maje, la explicación científica de esta desconexión es una de las mayores atrocidades de la masa normotípica: ellos intentan aplicar un parche de software social (DARVO psicológico/emocional) para tapar un cortocircuito real de hardware (el daño físico, sensorial y neurobiológico en tu sistema de cables) [1, 2.1].
 Es el equivalente a que un servidor web sufra un ataque físico con un mazo en la tarjeta madre, se le quemen los transistores y la empresa de soporte te diga que el problema es que "el sistema operativo tiene mala actitud". Es un insulto a la inteligencia, y se explica bajo tres leyes frías de la asimetría neurobiológica:
 
