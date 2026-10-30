@@ -1,3 +1,30 @@
+No puse aqui todos los abusos recibidos. Estoy muy cansada para hacerlo solo quisiera hacerme la eutanasia. Pero cualquiera concluye que recibi acoso sexual continuado mientras el fetichista y voyerista de dazzio jafet elvir mejia (instagram hoy @jafet_elvir) muchas veces se la jalo estando ami par por mi reaccion de tristeza
+El otro dia lei este articulo cientifico:
+
+[Las personas autistas piensan en suicidio y mueren (Trastorno del espectro autista, Asperger, AACC)](https://youtu.be/2ijiG8JFVek?si=wpJZluuNZkvrcYuj)
+Investigaciones recientes apuntan a una conclusión clara: las personas autistas están pensando en el suicidio y muriendo por suicidio a altas tasas
+
+[https://pmc.ncbi.nlm.nih.gov/articles...](https://pmc.ncbi.nlm.nih.gov/articles/PMC11042491/)
+
+Referencias
+1.Hedegaard H, Curtin SC, Warner M. Las tasas de suicidio en Estados Unidos continúan aumentando Datos clave del Sistema Nacional de Estadísticas Vitales, mortalidad. Resumen de datos del NCHS. 2018; (309):1–8. Resumen de datos del NCHS: Las tasas de suicidio en Estados Unidos siguen aumentando. [PubMed] [Google Scholar]
+2.Organización Mundial de la Salud. Ficha informativa sobre el suicidio. 2019. Hoja informativa sobre el suicidio de la Organización Mundial de la Salud. Consultado el 8 de marzo de 2021. [Google Scholar]
+3.Kirby AV, Bakian AV, Zhang Y, Bilder DA, Keeshin BR, Coon H. Un estudio de 20 años sobre muertes por suicidio en una población autónoma a nivel estatal. Autism Res. 2019; 12(4):658–666. doi: 10.1002/aur.2076 [DOI] [artículo gratuito de PMC] [PubMed] [Google Scholar]
+4.Hirvikoski T, Mittendorfer-Rutz E, Boman M, Larsson H, Lichtenstein P, Bölte S. Mortalidad prematura en el trastorno del espectro autista. Br J Psiquiatría. 2016; 208(3):232–238. [DOI] [PubMed] [Google Scholar]
+5.Lai MC, Saunders NR, Huang A, entre otros. Eventos de autolesión y muertes por suicidio entre personas autistas en Ontario, Canadá. JAMA Netw abierto. 2023; 6(8):e2327415. doi: 10.1001/jamanetworkopen.2023.27415 [DOI] [artículo gratuito de PMC] [PubMed] [Google Scholar]
+6.Huntjens A, Landlust A, Wissenburg S, Van der Gaag M. La prevalencia del comportamiento suicida en el trastorno del espectro autista: un metaanálisis. Crisis. 2023. DOI: 10.1027/0227-5910/a000922 [DOI] [PubMed] [Google Scholar]
+7.Lim KS, Wong CH, McIntyre RS, entre otros. Prevalencia global a lo largo de la vida y a los 12 meses de conductas suicidas, autolesiones deliberadas y autolesiones no suicidas en niños y adolescentes entre 1989 y 2018: un metaanálisis. Int J Environ Res Salud Pública. 2019; 16(22). doi: 10.3390/ijerph16224581 [DOI] [artículo gratuito de PMC] [PubMed] [Google Scholar]
+8.Cassidy S, Bradley P, Robinson J, Allison C, McHugh M, Baron-Cohen S. Ideación suicida y planes o intentos de suicidio en adultos con síndrome de Asperger que acuden a una clínica diagnóstica especializada: un estudio clínico de cohorte. La psiquiatría de The Lancet. 2014; 1(2):142–147. doi: 10.1016/S2215-0366(14)70248-2 [DOI] [PubMed] [Google Scholar]
+9.SAMHSA. Indicadores clave de consumo de sustancias y salud mental en Estados Unidos: Resultados de la Encuesta Nacional de 2019 sobre el Consumo de Drogas y la Salud.; 2019. Centro de Estadísticas y Calidad en Salud Conductual (CBHSQ) de SAMHSA. [Google Scholar]
+10.INSAR. Prioridades comunitarias de autismo para la prevención del suicidio. Informe de trabajo de INSAR para la prevención del suicidio. Un informe de políticas de la Sociedad Internacional para la Investigación del Autismo sobre la Prevención del Suicidio. [Google Scholar]
+11.Benevides TW, Shore SM, Palmer K, entre otros. Escuchando la voz autista: Prioridades de salud mental para guiar la investigación y la práctica en autismo desde un proyecto impulsado por partes interesadas. Autismo. 2020; 24(4):822–833. doi: 10.1177/1362361320908410 [DOI] [artículo gratuito de PMC] [PubMed] [Google Scholar]
+12.Lai JKY, Rhee E, Nicolas D. Suicidalidad en el trastorno del espectro autista: un comentario. Neurodesarrollo avanzado. 2017; 1(3):190–195. doi: 10.1007/s41252-017-0018-4 [DOI] [Google Scholar]
+13.Segers M, Rawana J. ¿Qué sabemos sobre la suicidalidad en los trastornos del espectro autista? Una revisión sistemática. Autism Res. 2014; 7(4):507–521. doi: 10.1002/aur.1375 [DOI] [PubMed] [Google Scholar]
+14.Hedley D, Uljarević M, Cai RY, Bury SM, Stokes MA, Evans DW. Dominios del fenotipo del autismo, control cognitivo y rumiación como predictores transdiagnósticos del riesgo de suicidio según el DSM-5. Uno, por favor. 2021; 16(1 enero):1–17. doi: 10.1371/journal.pone.0245562 [DOI] [artículo gratuito de PMC] [PubMed] [Google Scholar]
+15.Mournet AM, Wilkinson E, Bal VH, Kleiman EM. Revisión sistemática de los predictores de pensamientos y comportamientos suicidas entre adultos autistas: Argumentando el papel de la conexión social como factor protector. Clin Psychol Rev. 2023; 99 (septiembre 2022):102235. doi: 10.1016/j.cpr.2022.102235 [DOI] [PubMed] [Google Scholar]
+16.Hedley D, Uljarević M, Wilmot M, Richdale A, Dissanayake C. Breve Informe: Apoyo social, depresión e ideación suicida en adultos con trastorno del espectro autista. J Autismo Desarrollo Disord. 2017; 47(11):3669–3677. doi: 10.1007/s10803-017-3274-2 [DOI] [PubMed] [Google Scholar]
+17.Moseley RL, Gregory NJ, Smith P, Allison C, Baron-Cohen S. Vínculos entre autolesión y suicidabilidad en el autismo. Autismo MOL. 2020; 11(1): 1–15. doi: 10.1186/s13229-020-0319-8 [DOI] [Artículo gratuito de PMC] [PubMed] [Google Scholar]
+
 el otro dia se me ocurrio una historia
 ¡Qué gran momento! No hay nada mejor que esa chispa cuando aparece una nueva idea.
 Soy todo oídos, cuéntame de qué trata.
