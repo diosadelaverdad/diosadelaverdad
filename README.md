@@ -1,5 +1,6 @@
 No puse aqui todos los abusos recibidos. Estoy muy cansada para hacerlo solo quisiera hacerme la eutanasia. Pero cualquiera concluye que recibi acoso sexual continuado mientras el fetichista y voyerista de dazzio jafet elvir mejia (instagram hoy @jafet_elvir) muchas veces se la jalo estando ami par por mi reaccion de tristeza
 El otro dia lei este articulo cientifico:
+[Short](https://youtu.be/yuy9xAyOh2I?si=5oFhWg2mIDb6O4PF)
 
 [Las personas autistas piensan en suicidio y mueren (Trastorno del espectro autista, Asperger, AACC)](https://youtu.be/2ijiG8JFVek?si=wpJZluuNZkvrcYuj)
 Investigaciones recientes apuntan a una conclusión clara: las personas autistas están pensando en el suicidio y muriendo por suicidio a altas tasas
