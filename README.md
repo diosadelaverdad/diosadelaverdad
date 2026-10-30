@@ -1,11 +1,42 @@
 No puse aqui todos los abusos recibidos. Estoy muy cansada para hacerlo solo quisiera hacerme la eutanasia. Pero cualquiera concluye que recibi acoso sexual continuado mientras el fetichista y voyerista de dazzio jafet elvir mejia (instagram hoy @jafet_elvir) muchas veces se la jalo estando ami par por mi reaccion de tristeza
 El otro dia lei este articulo cientifico:
+[Suicidio y la Paradoja de la Lucidez: Por Qué el Camuflaje Social Cuesta Vidas - [Autistas sin DI]](https://youtube.com/shorts/jhJl12IpuJo?si=KZ4vMPFET9Fcnp_M)
 [Short](https://youtu.be/yuy9xAyOh2I?si=5oFhWg2mIDb6O4PF)
 
 [Las personas autistas piensan en suicidio y mueren (Trastorno del espectro autista, Asperger, AACC)](https://youtu.be/2ijiG8JFVek?si=wpJZluuNZkvrcYuj)
 Investigaciones recientes apuntan a una conclusión clara: las personas autistas están pensando en el suicidio y muriendo por suicidio a altas tasas
 
 [https://pmc.ncbi.nlm.nih.gov/articles...](https://pmc.ncbi.nlm.nih.gov/articles/PMC11042491/)
+
+Las investigaciones científicas muestran que las personas autistas tienen un riesgo significativamente mayor de presentar ideación suicida, intentos y mortalidad por suicidio en comparación con la población general.
+
+El camuflaje social (*masking* o enmascaramiento) en el Trastorno del Espectro Autista (TEA / Síndrome de Asperger) no es un simple rasgo de personalidad ni un mecanismo inocuo de cortesía; desde la neurobiología forense y la física de sistemas, es un **proceso continuo de degradación neuromuscular, ensombrecimiento clínico y sobrecarga alostática que eleva de forma drástica las tasas de mortalidad y suicidio**.
+
+   El masking obliga al cerebro autista a ejecutar un software de simulación social en tiempo real: forzar la mirada, ensayar guiones verbales, fingir sonrisas, traducir dobles sentidos y reprimir los movimientos de autorregulación motora (*stimming*). Este procesamiento "manual" de interacciones sociales consume hasta el 80% de la energía metabólica y de las reservas de Trifosfato de Adenosina (ATP) celular en la corteza prefrontal y el complejo vagal.
+
+   Cuando la batería metabólica se agota de forma crónica por "actuar como neurotípico", el sistema operativo entra en **Burnout Autista (agotamiento del procesador)**. Para evitar la combustión neuronal por sobrecalentamiento, el complejo vagal dorsal tira del freno de mano de emergencia: el sistema apaga funciones periféricas no esenciales, provocando niebla mental (*brain fog*), mutismo situacional (bloqueo de las cuerdas vocales) y estados de inmovilidad o catatonia funcional (*shutdowns*).
+
+   Mientras la fachada externa muestra una apariencia rígida, serena o inexpresiva (afecto plano) para no ser juzgada, el tálamo desatenuado deja pasar el 100% de la estática ambiental (luces fluorescentes, ruidos, texturas e invasiones del espacio perimetral) directamente hacia la amígdala.
+
+   Obligar al cuerpo a permanecer en un entorno sensorialmente agresivo mientras se disimula el malestar mantiene al Sistema Nervioso Simpático en un estado permanente de "alerta de muerte" (*fight or flight*). La masa masiva de noradrenalina y cortisol contrae los vasos sanguíneos y activa los receptores purinérgicos, generando *dolor físico literal* (descrito clínicamente como "vidrio molido en la sangre", ardor cutáneo, temblores e hipertonía muscular). Someter al cuerpo a esta fricción diaria convierte al masking en una fuente directa de trauma crónico.
+
+   El enmascaramiento crea la falsa ilusión de que la persona "funciona bien" porque no interrumpe el entorno ni exhibe conductas disruptivas externas. En perfiles con Altas Capacidades e inteligencia verbal elevada —especialmente en mujeres—, la Hipótesis del Camuflaje de Lorna Wing explica cómo el diagnóstico se retrasa durante décadas, privando a la persona de adaptaciones médicas y legales.
+
+   El entorno y la psiquiatría tradicional confunden la parálisis del burnout y la sobrecarga sensorial con "hipocondría", "TOC aislado", "trastornos de personalidad" o "depresión severa". Este *ensombrecimiento diagnóstico* impide detectar el colapso del sistema nervioso e incluso invisibiliza patologías médicas físicas graves, ya que el dolor del paciente no se comunica bajo los patrones convencionales.
+  
+   Los estudios clínicos y metaanálisis internacionales revelan que las personas autistas sin discapacidad intelectual presentan un riesgo de suicidio entre *5 y 9 veces mayor* que la población general. Cerca del 35% de los adultos en el espectro ha considerado el suicidio y un 25% lo ha intentado.
+
+   A mayor capacidad cognitiva y velocidad de procesamiento, mayor es la lucidez para registrar analíticamente el rechazo social, la falsedad de los protocolos normativos y la imposibilidad biológica de encajar en el sistema. La desesperanza no nace del autismo en sí, sino del desgaste crónico de procesar el mundo manualmente sin alivio.
+
+   Cuando la batería social llega a cero de forma permanente y el dolor sensorial/emocional se vuelve insoportable, la mente —por pura lógica de supervivencia ante el sufrimiento continuo— percibe la muerte como la única forma disponible de **apagar el interruptor y detener la tormenta neurológica**.
+
+El camuflaje social es un intento desesperado por sobrevivir en una sociedad que padece de **discapacidad psicosocial estructural**: un entorno que excluye a la persona al negarse a adaptar sus niveles de ruido, iluminación y canales de comunicación. 
+
+Eliminar el masking (*unmasking*) y aplicar el aislamiento táctico, la evitación sensorial y el silencio de descompresión no son conductas "patológicas"; son el *único protocolo de ciberseguridad y enfriamiento* que permite recuperar la energía celular (ATP), preservar la integridad del sistema nervioso y salvar vidas.
+
+Investigaciones recientes apuntan a una conclusión clara: las personas autistas están pensando en el suicidio y muriendo por suicidio a altas tasas
+
+https://pmc.ncbi.nlm.nih.gov/articles/PMC11042491/
 
 Referencias
 1.Hedegaard H, Curtin SC, Warner M. Las tasas de suicidio en Estados Unidos continúan aumentando Datos clave del Sistema Nacional de Estadísticas Vitales, mortalidad. Resumen de datos del NCHS. 2018; (309):1–8. Resumen de datos del NCHS: Las tasas de suicidio en Estados Unidos siguen aumentando. [PubMed] [Google Scholar]
