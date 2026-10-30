@@ -1,4 +1,6 @@
-No puse aqui todos los abusos recibidos. Estoy muy cansada para hacerlo solo quisiera hacerme la eutanasia. Pero cualquiera concluye que recibi acoso sexual continuado mientras el fetichista y voyerista de dazzio jafet elvir mejia (instagram hoy @jafet_elvir) muchas veces se la jalo estando ami par por mi reaccion de tristeza
+No puse aquí todos los abusos recibidos. Estoy muy cansada para hacerlo solo quisiera hacerme la eutanasia. Pero cualquiera concluye que recibí acoso sexual continuado mientras el fetichista y voyerista de dazzio jafet elvir mejia (Instagram hoy @jafet_elvir) muchas veces se la jalo estando a mi par por mi reacción de tristeza... Este chico debería estar en atención psiquiátrica y psicológica urgente igual que sus peones, monas voladoras y extensoras del abuso que recibí por su parte. Son un cáncer en la sociedad. Solo hacen que los seres humanos civilizados como yo queramos desear la muerte por no someternos a la fuerza bruta simiesca y su control coercitivo.  
+
+
 El otro dia lei este articulo cientifico:
 [Suicidio y la Paradoja de la Lucidez: Por Qué el Camuflaje Social Cuesta Vidas - [Autistas sin DI]](https://youtube.com/shorts/jhJl12IpuJo?si=KZ4vMPFET9Fcnp_M)
 [Short](https://youtu.be/yuy9xAyOh2I?si=5oFhWg2mIDb6O4PF)
